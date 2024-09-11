@@ -20,6 +20,5 @@ I'm always open to collaboration in the following areas:
 
 ### 📫 How to Reach Me
 Feel free to reach out to me through:
-- **Email**: [manellenouar.pro@gmail.com](mailto:manellenouar.pro@gmail.com)
 - **LinkedIn**: [Manelle Nouar](https://www.linkedin.com/in/manelle-nr/)
 - **Medium**: [Manelle Nouar](https://medium.com/@manellenouar)
